@@ -1,1 +1,0 @@
-ttnoc ia
